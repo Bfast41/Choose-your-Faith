@@ -10,7 +10,7 @@ Where you can Choose from following Genre-
 6.Sci-fi(Based on Alien secert)
 7.Romance(Giving flowers doesnt mean romance)
 8.Horror(Ghost that doesnt exist)
-What else is inside this Game:
+What else is inside this Game-
 You got Scene A and B
 Choose any one option , And the story starts
 After Choosing A and B , you can also choose climax , To see how your character can land after the intial screen
